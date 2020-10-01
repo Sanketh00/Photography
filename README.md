@@ -1,1 +1,1 @@
-# Photography
+# Photography of awesomeness 
